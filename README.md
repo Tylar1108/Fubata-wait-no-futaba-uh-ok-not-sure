@@ -1,1 +1,2 @@
-# Fubata-wait-no-futaba-uh-ok-not-sure
+gona try making a character i dont know
+just guessing her attitude n stuff 
